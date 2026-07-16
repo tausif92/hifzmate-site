@@ -2,7 +2,7 @@
 
 Users may request deletion of their HifzMate account and associated data by emailing:
 
-hifzmate.support@gmail.com
+tausifbajaria@gmail.com
 
 Please include:
 
